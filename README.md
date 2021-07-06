@@ -1,1 +1,1 @@
-# v7.github.io
+# https://vertep7.github.io/1/
